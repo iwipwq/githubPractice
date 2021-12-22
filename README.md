@@ -6,3 +6,6 @@
 --
 What the hell! What's happening to me
 no way Im going to kill myself sorry..
+
+--NOOOOOO!! come back!
+please dont do that bro
